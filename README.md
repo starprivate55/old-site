@@ -1,1 +1,1 @@
-# starprivate55-.github.io/home
+# starprivate55.github.io/home
